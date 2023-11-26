@@ -1,1 +1,1 @@
-- 👋 Hi, #impm-Dominika Suchcicka
+- #impm-Dominika Suchcicka
